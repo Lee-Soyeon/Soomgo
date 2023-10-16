@@ -11,4 +11,4 @@
 * Repository
 * Commit
 
-![](https://github.com/Lee-Soyeon/Soomgo/blob/main/img_2.png)
+![](https://m.ezendolls.com/web/product/big/201803/605_shop1_119071.jpg)
