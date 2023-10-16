@@ -10,3 +10,5 @@
 
 * Repository
 * Commit
+
+![](https://github.com/Lee-Soyeon/Soomgo/blob/main/img_2.png)
